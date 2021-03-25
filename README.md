@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kimer123
+- 👀 I’m interested in games
+- 🌱 I’m currently learning discord bot making
+- 📫 How to reach me kimer#6187
